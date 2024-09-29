@@ -5,7 +5,7 @@
 
 <p align="center"><br>
   $\color{#800000}{—ponytown~stuff}$ <br>
-  Don't be scared to interact!<br> I don't mind cuddling, kissing, booping, I think it's fun!<br>If I don't respond, I might be off-tab or shy. In that case, shoot me a whisper<br>Little dni, ill just hide/block if I feel like it or if youre a minor btd fan<br>
+  Don't be scared to interact!<br> I don't mind cuddling, kissing, booping, I think it's fun!<br>If I don't respond, I might be off-tab or shy. In that case, shoot me a whisper<br>Little dni, ill just hide/block if I feel like it <br>
 
 <p align="center">
   $\color{#800000}{—info}$ <br />
