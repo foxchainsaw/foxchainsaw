@@ -1,6 +1,6 @@
 <p align="center"> <br>
  <img src= "https://maguro.carrd.co/assets/images/gallery21/322d4a19.gif?v=10a293e5" "width="200" height="200"> <br>
-  $\color{#954B30}{FOX}$ <br>
+  $\color{#954B30}{GRAVE / FOX}$ <br>
   $\color{#B46A0F}{adult}$ <img src= "https://gifcity.carrd.co/assets/images/gallery11/8e9c37dc.gif?v=dc8076d6"> $\color{#B46A0F}{they/he}$ <img src= "https://gifcity.carrd.co/assets/images/gallery11/8e9c37dc.gif?v=dc8076d6"> $\color{#B46A0F}{ID}$
 
 <p align="center"><br>
